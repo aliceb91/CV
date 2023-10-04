@@ -38,6 +38,7 @@ _Healthcare Assistant_
 
 - Collaborated with members of the multidisciplinary team to ensure that our resident’s needs were met beyond their basic care requirements.
 
+
 **ASDA Bournemouth** (November 2013 to November 2015)
 _Personal Shopper / Checkout Assistant_
 
